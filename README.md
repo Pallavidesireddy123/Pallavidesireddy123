@@ -6,7 +6,7 @@
 
 <p align="left"> <img src="https://komarev.com/ghpvc/?username=pallavidesireddy123&label=Profile%20views&color=0e75b6&style=flat" alt="pallavidesireddy123" /> </p>
 
-- 📫 How to reach me **pallavidesireddy2001@gmail.com**
+- 📫 How to reach me **desireddypallavi2000@gmail.com**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
